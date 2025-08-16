@@ -1,2 +1,1 @@
-
-![wordart(1)](https://github.com/user-attachments/assets/0b915da0-7781-46ed-8b50-a7035d184d09)
+![spamdance](https://github.com/user-attachments/assets/c40e22a6-f4f2-467d-8d33-019c24828caf)
